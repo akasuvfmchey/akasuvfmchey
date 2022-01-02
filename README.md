@@ -1,4 +1,4 @@
-### Hi there 👋
+### Only the selfless can be fearless 👋
 
 <!--
 **akasuvfmchey/akasuvfmchey** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
